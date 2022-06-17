@@ -21,14 +21,10 @@
 ![在这里插入图片描述](Image/36.jpeg)
 ![在这里插入图片描述](Image/37.jpeg)
 
-  ![在这里插入图片描述](Image/2.jpeg)
-  ![在这里插入图片描述](Image/3.jpeg)
-
-
+![在这里插入图片描述](Image/2.jpeg)
+![在这里插入图片描述](Image/3.jpeg)
 
 ![在这里插入图片描述](Image/4.jpeg)
-
-
 
 ![在这里插入图片描述](Image/5.jpeg)!
 ![在这里插入图片描述](Image/6.jpeg)
