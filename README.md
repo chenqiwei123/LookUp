@@ -8,7 +8,9 @@
 > #### **3.不需要关注公众号!!!**
 > #### **4.所有资源不收费,全部免费下载!!!**
 
-
+## 含有的内容资料包括但不限于(资料持续更新补充......)
+ > #### **中考、高考、高校期末试卷、考研各校资料、毕业设计等......**
+ 
 - **所有资源在这个小程序中!**
 - **也可以直接访问博主网站查看 [https://blog.runwsh.com](https://blog.runwsh.com)  OR [https://blog.runwsh.com/cqw](https://blog.runwsh.com/cqw)**
 - **有小部分的文件正在收集......博主正在努力更新中!**
@@ -17,7 +19,8 @@
   ![在这里插入图片描述](Image/2.jpeg)
   ![在这里插入图片描述](Image/3.jpeg)
 
-
+![在这里插入图片描述](https://img-blog.csdnimg.cn/381ec97c46074b0a970a8344be8cd790.png)
+![在这里插入图片描述](https://img-blog.csdnimg.cn/b9259c759f0f4dbdb5c1ad7dc89ca18a.png)
 
 ![在这里插入图片描述](Image/4.jpeg)
 
